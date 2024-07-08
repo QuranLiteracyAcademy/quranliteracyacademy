@@ -1,1 +1,1 @@
-Quran Literacy Aacademy
+Quran Literacy Academy
